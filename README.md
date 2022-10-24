@@ -1,4 +1,4 @@
-### Hi there 🖖🏻
+### Hey there 🖖🏻
 
 👨🏻‍🚀 I am Raíssa Aimê and I've been working in Human Resourses since 2012.
 
