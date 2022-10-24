@@ -1,5 +1,15 @@
-Hi there! 😁 My name is Raíssa Aimê and I'm from Manaus, AM Brazil - "Welcome to the jungle babee". 
-I've been working as Human Resourses since 2012 and currently I'm a Tech Recruiter freelancer for companies around Brazil. 
-In my free time I like to watch movies 🎞️ and series 📺, go into the wild, to listen to music - God gave Rock n' roll to you 🎵 and I'm a mommy too (It's my Fulltime job hehe)! 
+## Hi there ✌🏼 
 
-Would you like to find me?   https://www.linkedin.com/in/raissa-aime/
+👨🏻‍🚀 I am Raíssa Aimê and I've been working in Human Resourses since 2012
+
+🏢 Currently I'm a Tech Recruiter working at Iatecam, an R&D Institute based in Manaus, Amazonas 
+
+📺 In my free time I like to watch movies and series , go into the wild 🌱and listen to music, basically Rock n' Roll ⚡
+
+👩‍👧 I'm a mommy too - That's my real fulltime job! 
+
+<h3 align="left">Here you'll find my Linkedin Profile:</h3>
+<p align="left">
+
+
+<a href="https://www.linkedin.com/in/raissa-aime" target="_blank"><img src="https://img.shields.io/badge/-LinkedIn-%230077B5?style=for-the-badge&logo=linkedin&logoColor=white" target="_blank"></a>
