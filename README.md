@@ -1,9 +1,9 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com/?color=FFFAFA&size=35&center=true&vCenter=true&width=1000&lines=Hey+there+I'm+Raíssa+Aimê;Welcome+and+be+kind!!!+🖖)](https://git.io/typing-svg)
 👨🏻‍🚀 I've been working in Human Resourses since 2012.
 
-🏢 Currently I'm a Tech Recruiter working for an R&D Institute based in Manaus, Amazonas. 
+🏢 I'm currently working as Tech Recruiter for an R&D Institute based in Manaus, Amazonas - Brasil. 
 
-📺 In my free time I like to watch movies and series, go into the wild 🌱and listen to Rock n' Roll ⚡
+📺 In my free time, I like hiking into the wild 🌱and listening to Rock n' Roll ⚡
 
 👩‍👧 I'm a mommy too and I use a Razor Crest for my online interviews!
 
