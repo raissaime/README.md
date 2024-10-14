@@ -1,11 +1,15 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com/?color=FFFAFA&size=35&center=true&vCenter=true&width=1000&lines=Hey+there+I'm+Raíssa+Aimê;Welcome+and+be+kind!!!+🖖)](https://git.io/typing-svg)
-👨🏻‍🚀 I've been working in Human Resourses since 2012.
+👨🏻‍🚀 I'm a Psychologist and a Tech Recruiter with over 10 years of experience in Human Resources. I have an MBA in People Management and a passion for finding and attracting the best talent for tech positions across industries, such as mining and technology.
 
-🏢 I'm currently working as Tech Recruiter for an R&D Institute based in Manaus, Amazonas - Brasil. 
+My experience includes straight collaboration with hiring managers to understand their needs and design effective recruitment strategies. I source and screen candidates through various channels, conduct interviews and assessments, and manage the full-cycle recruitment process. I also analyze recruitment metrics to track hiring progress and identify areas for improvement. 
 
-📺 In my free time, I like hiking into the wild 🌱and listening to Rock n' Roll ⚡
+I have successfully filled multiple tech positions, such as developers, engineers and researchers for RD projects.
 
-👩‍👧 I'm a mommy too and I use a Razor Crest for my online interviews!
+Feel free to reach out:
+📧 raissaime@gmail.com 
+📲 + 55 92 98134-9157 
+
+📺 In my free time, I like spending time with my family, hiking into the wild 🌱and listening to Rock n' Roll ⚡
 
 <h3 align="left">You can find me here:</h3>
 <p align="left">
